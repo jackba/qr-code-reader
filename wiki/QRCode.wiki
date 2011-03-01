@@ -1,0 +1,1 @@
+http://www.swetake.com/qr/qr1_en.html
